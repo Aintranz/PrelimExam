@@ -1,9 +1,11 @@
-# RANCIL - AURORA
+# **RANCIL - AURORA**
+======================
 ## TRAFFIC
 ## CHEATING
 ## DISHONEST
 ## DISLOYAL
 ## DISRESPECTFUL
-###### RANCIL AURORA
-###### JE LAWENKO
-###### XAVIER BUGTONG
+======================
+###### *RANCIL AURORA*
+###### *JE LAWENKO*
+###### *XAVIER BUGTONG*
