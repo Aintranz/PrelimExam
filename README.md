@@ -1,9 +1,8 @@
 # RANCIL - AURORA
-## TRAFFIC
-## CHEATING
-## DISHONEST
-## DISLOYAL
-## DISRESPECTFUL
+## "Unsay tawag sa Ulo na way ilong?"
+## "Unsa?"
+## "Butong"
 ###### RANCIL AURORA
 ###### JE LAWENKO
 ###### XAVIER BUGTONG
+####### RANCIL AURORA
